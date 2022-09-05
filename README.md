@@ -1,4 +1,7 @@
 ### Hi there 👋
+062-959-9895
+ottonopphasan@gmail.com
+
 
 <!--
 **Otto-nopphasan/Otto-nopphasan** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
